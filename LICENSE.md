@@ -1,4 +1,4 @@
-# 
+# Instantâneo new coin sniper bot predefinições para Mac OS | Elite new coin sniper bot predefinições para PC Windows. Com auditorias de segurança e ouvintes de eventos — otimizado para máximo desempeño en cada plataforma.
 
 
 
